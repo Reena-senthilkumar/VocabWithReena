@@ -1,6 +1,6 @@
 # 📚 VocabWithReena
 
-Since March 2024, I have been consistently working on improving my English communication skills to become a confident and fluent speaker.
+Since June 2024, I have been consistently working on improving my English communication skills to become a confident and fluent speaker.
 
 ## 🚀 My Progress So Far
 
